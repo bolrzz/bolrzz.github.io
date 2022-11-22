@@ -1,10 +1,12 @@
-## Welcome to *bolrzz.github.io*
+## bolrzz.github.io
  Webpage by Jestin Leigh N. Paranal
-# Favorite Stuff:
-1. Shooter Games
+# Call of Duty 4: Modern Warfare Campaign
 
-2. Food
+The story begins in the year 2011, where a group of Ultranationalists in Russia are 
+engaging in a civil war with the government in order to distract the United States 
+from intervening, one ultranationalist, Imran Zakhaev,
 
-3. Movies
+![image](https://user-images.githubusercontent.com/118233494/203188055-ff952704-0e8f-4309-9ba2-da01883c6e54.png)
 
-![image](https://user-images.githubusercontent.com/118233494/202934083-a5676af9-85e2-4fc8-b119-2e483a189f7e.png)
+secretly funds a coup d'etat in the Middle East to catch their attention, organized by his ally military commander Khaled Al-Asad 
+
