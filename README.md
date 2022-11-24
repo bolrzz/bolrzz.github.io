@@ -176,3 +176,58 @@ As they escape, Makarov kills Allen, revealing that he had known the CIA operati
 Makarov and his men then leave Allen's body behind, where it is identified as American.
 
 ![image](https://user-images.githubusercontent.com/118233494/203553857-32872642-45cd-41ac-bfb7-86bda49c82ca.png)
+
+Shortly after, Task Force 141 learns of an arms dealer named Alejandro Rojas who has ties to Makarov.
+
+![image](https://user-images.githubusercontent.com/118233494/203672297-2d50c87f-4020-4418-a8a0-f9b0014aca75.png)
+
+Hoping to use him to get to the Ultranationalist leader, Roach, Soap, and Ghost chase him down and capture him, taking Rojas into their custody.
+
+![image](https://user-images.githubusercontent.com/118233494/203672436-8b16b317-046d-4512-85cf-e602ef51ce00.png)
+
+In retaliation to the percieved United States attack on the Moscow Airport, Russia launches a surprise attack on the United States, revealing that the ACS module Soap and Roach retrieved was compromised since its recovery.
+
+The invasion eventually proves to be the catalyst for World War III.
+Army Rangers Sergeant Foley, Corporal Dunn, and Private James Ramirez (Allen's replacement) are then sent to defend Washington DC.
+
+![image](https://user-images.githubusercontent.com/118233494/203673361-82ec8457-479d-4909-bf9f-dd15439fc258.png)
+
+Meanwhile, Task Force 141 learns from Rojas that the Russians are holding one of Makarov's most hated enemies in a gulag, whom they codename Prisoner 627.
+
+
+General Shepherd, convinced that breaking out Prisoner 627 will draw out Makarov, sends Task Force 141 to the gulag hilding the prisoner to break him out.
+
+![image](https://user-images.githubusercontent.com/118233494/203673430-4883678b-d598-4c7d-b5fa-4c9a2bf87798.png)
+
+Once they infiltrate the gulag and fight through its security forces, they find that this prisoner is none other than Captain John Price
+
+![image](https://user-images.githubusercontent.com/118233494/203673496-422700eb-9cf4-4631-ab47-b532f6077b7c.png)
+
+After a short reunion, Task Force 141 escapes with price by helicopter as the gulag is demolished below them.
+
+![image](https://user-images.githubusercontent.com/118233494/203673553-a61c9570-0568-4d9b-9490-a6d977da8254.png)
+
+In DC, Sergeant Foley and his team discover that the Air Force intends to carpet bomb the Capital Building believing it to be lost to the attacking Russian forces.
+
+Meanwhile, Price agrees to immediately get back to work with Task Force 141.
+Believing that something extreme must be done to stop the attack in the United States, Price plans to infiltrate a Russian nuclear submarine base. 
+While Shepherd commands him to focus on fiding Makarov, Price cuts his communication and leads Task Force 141 to the submarine base instead.
+
+![image](https://user-images.githubusercontent.com/118233494/203675693-a208814e-c854-4fd3-89a4-6c7fd74d2418.png)
+
+There, Price, acting alone, hijacks the sub and launches a nuclear intercontinental ballistic missile towards the east coast of the United States.
+While the ICBM is in the air, the United States Secretary of Defense authorizes General Shepherd to do everything necessary to take down Makarov, providing a "blank check" for whatever he needs. 
+
+![image](https://user-images.githubusercontent.com/118233494/203676303-7cd444ab-da92-426e-acb0-14f99b13a0c8.png)
+
+As the ICBM is in the atmosphere above Washington DC, Price has it detonated sparing Washington from the attack but destroying the International Space Station (ISS).
+
+ ![image](https://user-images.githubusercontent.com/118233494/203676358-31516029-9085-4ac6-8b08-6acf1a41d47f.png)
+
+This blast creates an electromagnetic pulse, disabling all electronic equipment in the area, effectively stopping both US and Russian militaries in their tracks.
+This distraction allows Sergeant Foley and his Rangers to retake the White House and set off emergency flares on the roof just as the fighters arrive, indicating that the city is in-fact not lost and calling off the airstrike.
+
+![image](https://user-images.githubusercontent.com/118233494/203676503-67cec329-ae1f-401a-a68b-c291fec4b799.png)
+
+The next day, Task Force 141 is informed of two possible locations about where Makarov has been hiding
+The 
